@@ -1,4 +1,4 @@
-# 
+# best NFT Trading Bot for opensea sniper bot | cross-market-arbitrage & take-profit is the best opensea sniper bot, featuring cross-market-arbitrage and take-profit. Fast, smart,
 
 
 
